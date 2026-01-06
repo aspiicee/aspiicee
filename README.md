@@ -1,2 +1,2 @@
 
-![](https://cdn.discordapp.com/attachments/1435126340368990331/1457992144743694346/IMG_6778.gif)
+![]([https://cdn.discordapp.com/attachments/1435126340368990331/1457992144743694346/IMG_6778.gif](https://64.media.tumblr.com/7d561451b876dbe5fa74dbdf3c6a7f0e/c4d850917f9bd609-74/s2048x3072/446881818fcbfeae66cf82669575919aafba9484.pnj))
